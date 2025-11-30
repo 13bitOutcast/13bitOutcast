@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Muhammad Ali Khalid, (@13bitOutcast) a Product Designer.
 - 👀 I’m interested in Product/Experience Design, PC gaming, PC building and football.
-- 🌱 I’m currently working as a UX Designer at Enbaling Broadvisions, Lahore, Pakistan.
+- 🌱 I’m currently working as a UX Designer at Roads and Transport Authority, Dubai.
 - 💞️ I’m looking to collaborate on UI/UX designs and research.
 - 📫 Contact me on muhammadalikhalid.13@gmail.com
      
